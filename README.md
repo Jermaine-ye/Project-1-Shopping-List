@@ -10,3 +10,7 @@ Tech Stack:
 https://www.youtube.com/watch?v=SSFdmyyqui0&list=PLxwmeZaKMKvNYg35dVbYuydFbZ-jN5q8x&index=1
 
 Please have subtitles on for project walkthrough :)
+
+
+Please visit:
+bit.ly/jyjm-portfolio for more details :)
